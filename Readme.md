@@ -1,6 +1,6 @@
 # Sammfunsfag notater
 
-## Hvorfor vi burde straffe store bedrifter istedet
+## Bør vi burde straffe store bedrifter istedet for individer?
 
 <br>
 
@@ -16,6 +16,7 @@
 
 ### ulemper
 
-* Kan føre til færre jobber i petroleums sektoren
+* Kan føre til færre jobber i olje og gass sektoren
 
 * for raske endringer uten fornybar energi til å støtte det vil føre til at energikrisen blir værre med høyere priser på både strøm og oljeprodukter.
+
