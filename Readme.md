@@ -20,3 +20,4 @@
 
 * for raske endringer uten fornybar energi til å støtte det vil føre til at energikrisen blir værre med høyere priser på både strøm og oljeprodukter.
 
+* Kan føre til en værre økonomi
