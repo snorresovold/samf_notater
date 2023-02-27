@@ -14,8 +14,6 @@
 
 <br>
 
-
-
 ### ulemper
 
 * Kan føre til færre jobber i olje og gass sektoren
