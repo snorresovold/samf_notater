@@ -1,6 +1,6 @@
 # Sammfunsfag notater
 
-## Bør vi burde straffe store bedrifter istedet for individer?
+## Bør vi straffe store bedrifter istedet for individer?
 
 <br>
 
